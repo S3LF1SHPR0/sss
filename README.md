@@ -30,3 +30,24 @@
 
 Задание 6
 ![IMG_8069](https://github.com/user-attachments/assets/219cd885-7332-4439-930f-5236ec540307)
+
+Задание 13
+![IMG_8076](https://github.com/user-attachments/assets/c24b8fcb-90e6-49ea-b810-bea88ca695e1)
+
+Задание 12
+![IMG_8075](https://github.com/user-attachments/assets/fb6cf82c-8c65-4354-bd9f-14939779bfe1)
+
+Задание 18
+![IMG_8081](https://github.com/user-attachments/assets/5d028f77-2914-41b1-b4dd-4ede0a5b8475)
+
+Задание 17
+![IMG_8080](https://github.com/user-attachments/assets/dc7b5271-e7e5-4586-93ae-29c9ae26c205)
+
+Задание 16
+![IMG_8079](https://github.com/user-attachments/assets/4875163b-9a2b-4fe3-a47d-77ac9699c239)
+
+Задание 15
+![IMG_8078](https://github.com/user-attachments/assets/93d75f99-c8af-4a40-8dc9-c30b20398b16)
+
+Задание 14
+![IMG_8077](https://github.com/user-attachments/assets/dc2798b0-ab4c-45a9-9736-83ca10ec1d1b)
